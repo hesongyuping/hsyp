@@ -1,7 +1,16 @@
 print("mabide")
 
-print("xxxx")
 
 print("song is a good man")
 
-asdfgjghhjgh
+
+yuanping is a pretty girl
+
+
+xxxxxxxxxxxcccccccccccc
+
+
+
+
+hesong  love  yuanping
+yuanping love herself
